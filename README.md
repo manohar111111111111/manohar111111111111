@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @manohar111111111111
+k- 👋 Hi, I’m @manohar111111111111
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
@@ -15,3 +15,6 @@ a]a]]\a\/,alu uaughg gjgsyt 6778960 =  jhahb  jhff gghf u6fc v  vj nnaby ayb vva
 lskis uuys aha vaga ga  anbavahgan manoahaaus bus s
 man ahah ]]]]1128 uaj mmanoahar ha ga hgak manoahtra sggsg 7109872233 
 manhainaga b
+asdg o ja nn m 112/ 
+**echo** -e";/n/n
+777bootstrap ;;' 0987h h/ app url ; 
